@@ -1,0 +1,8 @@
+- Cost advantages - when production becomes efficient
+- Increasing production and lowering costs
+- Costs - fixed & variable, are spread over a large number of goods
+- Large companies will have more cost savings and higher production levels
+- Internal and External
+	- Internal - within company
+	- External - affect the entire industry
+- 
